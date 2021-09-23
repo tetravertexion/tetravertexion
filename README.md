@@ -1,0 +1,3 @@
+- 👋 hello, i am @tetravertexion (tet for short).
+- 💞️ i am interested in synergetics, and learning by doing.
+- 📫 email me at tetravertexion@gmail.com .
